@@ -2,9 +2,9 @@
 
 - 🔭 I’m currently working on something cool 😉
 - 🌱 I’m currently learning everything 😂
-- 💻 I’m looking to start my career in Good IT Industry.
+- 💻 I’m Working VWITS As Software Engineer-Trainee.
 
-- 🎯 2024 Goals: Contribute more to open source projects/
+- 🎯 2025 Goals: Contribute more to open source projects/
 
 - ⚡ Fun fact: I love to click moments 📸
 
